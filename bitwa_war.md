@@ -1,0 +1,2 @@
+# Bitwa Warszawska
+Bitwa Warszawska miała ogromne znaczenie dla Europy. Zwycięstwo Polaków powstrzymało ekspansję komunizmu do Europy zachodniej. Dlatego też została okrzyknięta przez ówczesnego ambasadora brytyjskiego w Polsce "18 decydującą bitwą w dziejach świata".
